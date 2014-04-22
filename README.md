@@ -1,4 +1,4 @@
 Hang-thanh-ly-gia-re
 ====================
 
-Hàng thanh lý giá rẻ
+Cầm đồ Hạnh Loan thanh lý giá rẻ đủ loại mặt hàng : 
